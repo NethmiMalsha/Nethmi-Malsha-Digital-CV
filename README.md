@@ -1,5 +1,5 @@
 # **RANAPANADA NETHMI MALSHA NIWANTHANI**  
-<img src="profile.jpg" alt="Profile Picture" width="150" style="border-radius: 50%;">
+<img src="profile.jpg.jfif" alt="Profile Picture" width="150" style="border-radius: 50%;">
 ID NO - 200266002055
 
 Enthusiastic university student seeking employment and working experience. Fluent in English, speaking and writing. Having dedication and passion to get knowledge technically and practically, while giving the best to complete the tasks assigned to achieve the goals and milestones in the working environment.
